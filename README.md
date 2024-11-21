@@ -1,7 +1,7 @@
 # quizizz-cheat
 Cheat and answers for https://quizizz.com/ created by School Cheats
 
-## **All of the hacks are located at https://schoolcheats.net/**
+## **All of the hacks are located at https://schoolcheats.net/quizizz**
 
 # Quizizz Hacks
 
